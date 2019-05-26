@@ -27,7 +27,7 @@
 
 - # 游戏体验更新
 ## 2.1.1中加入了背景音乐 —— Cattle-Masked Heroes(钢琴版)(Cover Vexento)
-### [](https://music.163.com/#/song?id=491780344)
+### [在线试听](https://music.163.com/#/song?id=491780344)
 
 ----------
 
